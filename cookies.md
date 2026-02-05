@@ -1,1 +1,6 @@
-smid lortet i ovnen og håb på det bedste
+Ingredients for chocolate chip cookies:
+- chokolade
+- mel
+- sukker
+- vand
+- bagepulver
